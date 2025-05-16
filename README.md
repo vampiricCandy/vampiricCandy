@@ -11,7 +11,7 @@ We / Vamp pronouns more.
 
 ╰┈➤. Due to my anxiety I will be nervous to talk to you.
 
-╰┈➤. STRAWPAGE : https://vampiricandy.straw.page/
+╰┈➤. STRAWPAGE : https://candybats.straw.page/
 
 ⸝⸝ If you know what fandom i'm from INTERACT! I enjoy making friends despise my ANXIETY! 
 
