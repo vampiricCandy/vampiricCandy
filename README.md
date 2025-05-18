@@ -1,6 +1,6 @@
 ### ʚ𖦹ɞ BASIC THINGS ABOUT ME ʚ𖦹ɞ
 
-╰┈➤. You may call me Streber / Chance ( OR ANYONE YOU MET ME AS, IF YOU CAME FROM A GAME. )
+╰┈➤. You may call me Streber / Elliot ( OR ANYONE YOU MET ME AS, IF YOU CAME FROM A GAME. )
 We / Vamp pronouns more.
 
 ╰┈➤. I am taken. 
